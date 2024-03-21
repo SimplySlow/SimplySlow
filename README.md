@@ -2,7 +2,7 @@
 - 👀 I’m interested in touching grass, modelling, (kind of) drawing and also anime.
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on ...
-- 📫 Hit me up on Discord - SimplySlow_
+- 📫 Hit me up on Discord - 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I LOVE The Sims!
 
